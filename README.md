@@ -1020,6 +1020,283 @@ If you want text watermark (small):
 (Font: Montserrat / Bebas Neue / Poppins)
 
 ---
+🔥 **@BanglaHustle — FIRST 10 VIRAL FACEBOOK REELS (READY-TO-POST)**
+Faceless • Bangla-focused • 9:16 • 7–20 sec • High-retention hooks
+
+You can post **Day 1 → Day 10** or rotate daily.
+
+---
+
+## 🎬 REEL 1 — DISCIPLINE (INTRO REEL)
+
+### 🎥 AI VIDEO PROMPT
+
+Faceless cinematic motivation reel, early morning routine, dark room, alarm clock, workout, study desk, sunrise. Bold Bangla captions, emotional music, dark cinematic color grading. 9:16.
+
+### 🎙️ BANGLA VOICEOVER
+
+> “মোটিভেশন সবসময় থাকবে না।
+> ডিসিপ্লিনই তোমাকে জিতাবে।”
+
+### 📌 TITLE
+
+Discipline Is Power
+
+### 📝 DESCRIPTION
+
+আজ কষ্ট করো,
+আগামীকাল গর্ব করো 🔥
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #বাংলামোটিভেশন #discipline #successmindset #facebookreels
+
+---
+
+## 🎬 REEL 2 — SILENT GRIND (NO VOICE)
+
+### 🎥 AI VIDEO PROMPT
+
+Silent reel, night city, laptop work, gym training, lonely grind. Beat-synced bold Bangla captions. 9:16.
+
+### 📝 ON-SCREEN TEXT
+
+* “চুপচাপ কাজ করো”
+* “কারণ বোঝাও না”
+* “ফলাফল দেখাও”
+
+### 📌 TITLE
+
+Silent Hustle
+
+### 📝 DESCRIPTION
+
+সবাইকে জানাতে হয় না।
+জিতে দেখালেই যথেষ্ট 💯
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #silentgrind #hustlelife #motivationreel
+
+---
+
+## 🎬 REEL 3 — SELF-BELIEF
+
+### 🎥 AI VIDEO PROMPT
+
+Slow-motion emotional reel, rain visuals, struggle moments, dramatic light transitions. Calm male voiceover. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “যখন কেউ বিশ্বাস করবে না—
+> তখন নিজেকে বিশ্বাস করো।”
+
+### 📌 TITLE
+
+Believe in Yourself
+
+### 📝 DESCRIPTION
+
+নিজের উপর বিশ্বাসই
+সবচেয়ে বড় শক্তি 🚀
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #selfbelief #confidence #mindset
+
+---
+
+## 🎬 REEL 4 — FAILURE → SUCCESS
+
+### 🎥 AI VIDEO PROMPT
+
+Storytelling reel showing failure, rejection, falling, then rising. Dark-to-light transition, subtitles. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “ব্যর্থতা শেষ না।
+> এটা তোমার ট্রেনিং।”
+
+### 📌 TITLE
+
+Failure Builds You
+
+### 📝 DESCRIPTION
+
+ভেঙে পড়ো না।
+শক্ত হও 🔥
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #failuretosuccess #neverquit
+
+---
+
+## 🎬 REEL 5 — STUDENT MOTIVATION
+
+### 🎥 AI VIDEO PROMPT
+
+Late-night studying, exams, books, pressure, sunrise hope visuals. Soft emotional music, bold captions. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “আজ পড়ো কষ্ট করে,
+> যাতে কাল জীবন সহজ হয়।”
+
+### 📌 TITLE
+
+Study Now
+
+### 📝 DESCRIPTION
+
+ছাত্র জীবনটাই ভবিষ্যৎ গড়ার সময় 📚
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #studentmotivation #studyhard
+
+---
+
+## 🎬 REEL 6 — NO EXCUSES (HIGH ENERGY)
+
+### 🎥 AI VIDEO PROMPT
+
+High-energy reel, workouts, sweat, hustle, fast cuts, aggressive captions, intense music. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “সবাই ক্লান্ত।
+> কিন্তু সবাই হাল ছাড়ে না।”
+
+### 📌 TITLE
+
+No Excuses
+
+### 📝 DESCRIPTION
+
+আজ না করলে
+কখন করবে? 💪
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #noexcuses #hardwork
+
+---
+
+## 🎬 REEL 7 — CONSISTENCY
+
+### 🎥 AI VIDEO PROMPT
+
+Minimal aesthetic reel, daily routine repetition, calendar flipping, progress visuals. Calm narration. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “অল্প অল্প করে।
+> প্রতিদিন।
+> এভাবেই জয় আসে।”
+
+### 📌 TITLE
+
+Consistency Wins
+
+### 📝 DESCRIPTION
+
+একদিন না—
+প্রতিদিন 🔁🔥
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #consistency #successhabits
+
+---
+
+## 🎬 REEL 8 — NIGHT GRIND
+
+### 🎥 AI VIDEO PROMPT
+
+Night-theme reel, city lights, late work, solitude, thinking moments, low-light cinematic style. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “ওরা ঘুমায়।
+> তুমি ভবিষ্যৎ বানাও।”
+
+### 📌 TITLE
+
+While Others Sleep
+
+### 📝 DESCRIPTION
+
+রাতটাই আসল লড়াই 🌙
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #nightgrind #dreambig
+
+---
+
+## 🎬 REEL 9 — PROVE THEM WRONG
+
+### 🎥 AI VIDEO PROMPT
+
+Reel showing doubt, criticism, then confidence and action. Bold kinetic captions. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “ওদের কথায় থামো না।
+> কাজ দিয়ে জবাব দাও।”
+
+### 📌 TITLE
+
+Prove Them Wrong
+
+### 📝 DESCRIPTION
+
+শব্দ না,
+ফলাফল 🔥
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #provemwrong #mindset
+
+---
+
+## 🎬 REEL 10 — FUTURE YOU
+
+### 🎥 AI VIDEO PROMPT
+
+Emotional future-focused reel, mirror reflection, growth visuals, sunrise ending. Soft epic music. 9:16.
+
+### 🎙️ VOICEOVER
+
+> “আগামীকালের তুমি
+> আজকের সিদ্ধান্ত দেখছে।”
+
+### 📌 TITLE
+
+Your Future Is Watching
+
+### 📝 DESCRIPTION
+
+আজ বদলাও,
+কাল বদলাবে 💯
+
+### #️⃣ HASHTAGS
+
+#BanglaHustle #futureyou #motivationbangla
+
+---
+
+# 🚀 POSTING PLAN (IMPORTANT)
+
+* Post **1 reel per day**
+* Best time: **9–11 PM (BD time)**
+* Pin **Reel 1** on your page
+* Reply to every comment (boosts reach)
+
+---
+
+
 
 
 
